@@ -1,1 +1,1 @@
-ALX stuff
+ALX stuff, school is very cool
